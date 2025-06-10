@@ -31,3 +31,5 @@ BLOCK TALES- Hatred, Builderman
 WARRIOR CATS- Stonefur, Hollyleaf
 
 GREAT GOD GROVE- Inspekta, Bizzyboy P
+
+PHIGHTING- Slingshot, Sword
