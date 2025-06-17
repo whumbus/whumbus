@@ -1,5 +1,7 @@
 ![B-gin10](https://github.com/user-attachments/assets/29c4d0bb-0a56-48e8-9036-42b75ad9f3ac)
 
+<img src="https://myblinkie.holidaycomments.com/create/blinku/1e2d4fcc407e6389c3565f2212f4dddc.gif">
+
 Hi !! U can call me Jake or Patty
 
 I love seeing pony cosplays of my fandoms!! PLSSSS interact / send me a whisper if u recognize my cosplay!!!
